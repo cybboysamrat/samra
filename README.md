@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **cyber security**
 
-- 📫 How to reach me **anantsamrat8@gmail.com**
+- 📫 How to reach me **https://t.co/vgrBw4sdFJ**
 
 - ⚡ Fun fact **I Think I am Funny.**
 
